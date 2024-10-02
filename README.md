@@ -2,7 +2,7 @@
 - 👀 I’m interested in inovate
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on some project
-- 📫 How to reach me:
+- 📫 How to reach me: <br>
       -Email: kgv1722002@hotmail.com
       -Instagram: kevin_g0mez
 - 😄 Pronouns: Rexvin
