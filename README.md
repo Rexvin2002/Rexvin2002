@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on some project
 - 📫 How to reach me: <br>
-      -Email: kgv1722002@hotmail.com
+      -Email: kgv1722002@hotmail.com <br>
       -Instagram: kevin_g0mez
 - 😄 Pronouns: Rexvin
 - ⚡ Fun fact: I have lost everything from my old account 'Rexvin'
