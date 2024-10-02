@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on some project
 - 📫 How to reach me: <br>
       -Email: kgv1722002@hotmail.com <br>
-      -Instagram: kevin_g0mez https://www.instagram.com/kevin_g0mez/)
+      -Instagram: https://www.instagram.com/kevin_g0mez/)
 - 😄 Pronouns: Rexvin
 - ⚡ Fun fact: I have lost everything from my old account 'Rexvin'
 
