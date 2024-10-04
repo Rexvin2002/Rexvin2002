@@ -6,7 +6,7 @@
       -Email: kgv1722002@hotmail.com <br>
       -Instagram: https://www.instagram.com/kevin_g0mez/)
 - 😄 Pronouns: Rexvin
-- ⚡ Fun fact: I have lost everything from my old account 'Rexvin'
+- ⚡ Fun fact: I have lost everything from my old account 'Rexvin1'
 
 <!---
 Rexvin2002/Rexvin2002 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
